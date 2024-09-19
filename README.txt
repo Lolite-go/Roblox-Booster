@@ -22,7 +22,13 @@
 - VTools 142
 ​
 
-How to use Make Sure You Open Roblox First
+How to use 
+
+Make Sure You Open Roblox First
+
+then choose 1 and enter 
+
+after you close the roblox you should open app agein and choose 2 and enter
 ​
 ​
 
